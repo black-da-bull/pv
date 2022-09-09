@@ -9,7 +9,7 @@ For more info, guides, etc. check the [official web page](https://porn-vault.git
 ![Discord](https://img.shields.io/discord/652499331265331245)
 ![Subreddit subscribers](https://img.shields.io/reddit/subreddit-subscribers/porn_vault?style=social)
 
-There's a Discord channel! Join in to the discussion: [Discord](https://discord.gg/t499hxK)
+There's a Discord channel! Join in to the discussion: [Discord](https://discord.gg/QfeHYtKGEa)
 
 ## Support
 
